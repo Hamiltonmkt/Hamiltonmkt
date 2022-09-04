@@ -1,16 +1,15 @@
-### Hi there 👋
+### Hi there 👋sou o Hamilton Júnior
 
-<!--
+
 **Hamiltonmkt/Hamiltonmkt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-  📲 Sou  Gestor de Redes Sociai e Gestor de Tráfego (Impulsionamentos);
+- 🎯 Adoro Marketing Digital e estudo muito sobre;
+- 💻 Atualmente estudando  muito sobre programação;
+- 🏝️ Natural de Fortaleza, Cea´r;
+- 🌏 Morei 3 anos na Nova Zelandia
+- ✈️ Adoro viajar e conhecer lugares novos;
+- ☎️ Fale comigo pelo Instagram: hamilton_mkt
+- 🙏 Trabalhador voluntário ;
