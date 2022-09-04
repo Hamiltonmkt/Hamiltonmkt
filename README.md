@@ -3,8 +3,6 @@
 
 **Hamiltonmkt/Hamiltonmkt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
 -  📲 Sou  Gestor de Redes Sociai e Gestor de Tráfego (Impulsionamentos);
 - 🎯 Adoro Marketing Digital e estudo muito sobre;
 - 💻 Atualmente estudando  muito sobre programação;
