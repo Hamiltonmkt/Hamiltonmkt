@@ -1,7 +1,4 @@
-### Hi there 👋sou o Hamilton Júnior
-
-
-**Hamiltonmkt/Hamiltonmkt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Hi there 👋 sou o Hamilton Júnior
 
 -  📲 Sou  Gestor de Redes Sociai e Gestor de Tráfego (Impulsionamentos);
 - 🎯 Adoro Marketing Digital e estudo muito sobre;
