@@ -1,6 +1,6 @@
 ### Fala 👋 sou o Hamilton Júnior
 
--  📲 Sou  Gestor de Redes Sociai e Gestor de Tráfego (Impulsionamentos);
+-  📲 Sou  Gestor de Redes Sociais e Gestor de Tráfego (Impulsionamentos);
 - 🎯 Adoro Marketing Digital e estudo muito sobre;
 - 💻 Atualmente estudando  muito sobre programação;
 - 🏝️ Natural de Fortaleza, Ceara;
