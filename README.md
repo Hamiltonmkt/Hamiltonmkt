@@ -1,4 +1,4 @@
-### Hi there 👋 sou o Hamilton Júnior
+### Fala 👋 sou o Hamilton Júnior
 
 -  📲 Sou  Gestor de Redes Sociai e Gestor de Tráfego (Impulsionamentos);
 - 🎯 Adoro Marketing Digital e estudo muito sobre;
