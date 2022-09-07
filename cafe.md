@@ -71,6 +71,8 @@ Por isso, com todo respeito as pessoas que vocês se inspiram  deixa mais uma ve
 
 prazer, eu sou SIMPLESMENTE o CAFÉ!
 
+![Alt ou título da imagem](https://i.pinimg.com/originals/2c/d9/c0/2cd9c09fe9dc775b5f40c2923df31f35.gif)
+
 
 
 
