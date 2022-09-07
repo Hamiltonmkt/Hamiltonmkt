@@ -29,5 +29,49 @@ CAFÉ COM MÚSICA, COMBINAÇÃO PERFEITA
 
 Dave Grohl, vocalista da banda Foo Fighters, é um verdadeiro apaixonado por café sem falar no João Gomes 😂
 
+TOMAR CAFÉ É UMA ARTE
+
+Mais que uma influência , eu sou transformado na própria arte! A artista Guilia Bernardelli, faz lindas imagens a partir de Café derramado. Além disso, o momento sagrado de me tomar, tão cotidiano e tão clássico, já deu origem a muitas cenas de filmes.
+
+EU E VOCÊS PROGRAMADORES
+
+Talvez você já tenha ouvido frases parecidas com isso e (ditas com orgulho):
+"Para esse projeto funcionar assim foram necessário muitas horas de código e muitos litros de café."
+
+Porque vocês programadores e futuros programadores são consumidores assíduos de café? ☕☕☕
+
+Eu andei pensando em algumas possibilidades: 
+
+A principio a atividade de programar alguma coisa é uma atividade que exige concentração, foco, atenção e muiiiiiiita paciência. 
+
+Praticamente a atividade de programação se resume em resolver problemas. Seja para resolver os famosos bugs ou para encontrar erros no código (uma única virgula que falta já é o suficiente para que nada funcione). O famoso erro de compilação. EU sou um bom aliado nesses quesitos. Existem vários estudos que comprovam que eu sou um grande estimulante natural.
+
+Se você gosta de café tente se observar no momento que acorda. Na pessoa antes e depois do café.
+
+Eu seria uma forma de simbolizar a concentração?! E com essa minha fama em aumentar a concentração vem junto o fato que após consumir uma xícara minha você está energizado e pronto para encarar uma tarefa árdua?
+
+Seria um tipo de gatilho mental?
+
+É uma coisa muito perceptível! Programadores de todos os lugares parecem ser fascinados por mim!
+
+Veja que interessante, em empresas de tecnologia eles costumam ter maquinas ou garrafas comigo espalhadas.
+Eu faço parte da cultura da maioria das empresas do MUNDO!
+
+Veja o caso do Java. E antes que alguém me corrija o Java não é uma empresa e sim uma linguagem de programação criada por James Gosling e seu símbolo contém uma xícara de café.
+
+Alias programadores adoram exibir suas xícaras de café estampadas as suas linguagens de programação favoritas.
+
+E minha conclusão.
+
+Minha conclusão sobre o fato de programadores gostarem tanto de mim é: Cultural em sua maior parte.
+
+Que eu sem duvida sou um excelente estimulante e faço você ficar mais atento as suas tarefas não há do que discordar.
+
+Por isso, com todo respeito as pessoas que vocês se inspiram  deixa mais uma vez eu me apresentar:
+
+prazer, eu sou SIMPLESMENTE o CAFÉ!
+
+
+
 
 
