@@ -1,4 +1,4 @@
-### Fala 👋 sou o Hamilton Júnior
+### Olá 👋 sou o Hamilton Júnior
 ![caf](https://travelpedia.com.br/wp-content/uploads/2020/09/cafe-1-GIF.gif)
 
 -  📲 Sou  Gestor de Redes Sociais e Gestor de Tráfego (Impulsionamentos);
