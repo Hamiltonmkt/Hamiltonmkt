@@ -12,3 +12,5 @@
 
 [![LinkedIn](https://logospng.org/download/linkedin/logo-linkedin-256.png)](https://www.linkedin.com/in/hamilton-junior-b441bb1b3/)
 
+[![Freecodcamp](https://img.shields.io/badge/Freecodecamp-%23123.svg?&style=for-the-badge&logo=freecodecamp&logoColor=green)](https://www.freecodecamp.org/HamiltonJunior)
+
